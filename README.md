@@ -1,1 +1,3 @@
-# Oh,would i love to see the stars from the beaches up on mars.
+# My girl, you need to understand
+It does not matter how much you try
+We will never be human
